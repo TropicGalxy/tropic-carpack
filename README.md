@@ -6,7 +6,7 @@ this pack includes: civ vehicles, emergency vehicles, mortorcycles, and other fo
 
 enjoy! 
 
-support: https://dsc.gg/tropicgalxy
+want to add some cars or need support? join here: https://dsc.gg/tropicgalxy
 
 # credits
 
