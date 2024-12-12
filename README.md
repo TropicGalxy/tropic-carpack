@@ -17,3 +17,5 @@ Lamborghini Centenario LP 770 -- https://www.gta5-mods.com/vehicles/lamborghini-
 Kawasaki Ninja H2 -- https://www.gta5-mods.com/vehicles/kawasaki-ninja-h2-h2r-add-on-tunable
 
 Overflod Entity MTR -- https://www.gta5-mods.com/vehicles/overflod-entity-mtr-add-on-fivem-lods
+
+Lamborghini Huracan Super Trofeo -- https://www.gta5-mods.com/vehicles/add-on-lamborghini-huracan-super-trofeo-evo2-carbon-fiber-livery-itzzmxm
