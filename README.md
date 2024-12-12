@@ -12,3 +12,4 @@ support: https://dsc.gg/tropicgalxy
 
 Lamborghini Centenario LP 770 -- https://www.gta5-mods.com/vehicles/lamborghini-centenario
 
+2015 Ford Mustang GT -- https://www.gta5-mods.com/vehicles/2015-ford-mustang-gt
